@@ -9,7 +9,7 @@ Hi, I'm @aartis106
 📫 How to reach me:
 
 Email: aartishinde534@gmail.com
-LinkedIn: 
+LinkedIn: www.linkedin.com/in/aarti-shinde-327186265
 😄 Pronouns: She/Her
 
 ⚡ Fun fact: I'm a coffee aficionado and love trying out new coffee blends while coding! ☕️
